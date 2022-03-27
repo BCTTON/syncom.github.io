@@ -1,1 +1,1 @@
-# syncom.github.io
+# sycommedia
